@@ -184,7 +184,7 @@ The Executive Council is responsible for advertising, conducting interviews and 
 ## 10. Amendments
 
 ### Bylaws
-Any changes to these bylaws require a majority vote of the Executive Council. The Executive Council must re-approve these rules or an amended version every two years.
+Any changes to these bylaws require a majority vote of the Executive Council. The Executive Council must re-approve these rules or an amended version at least every two years.
 
 ---
 
